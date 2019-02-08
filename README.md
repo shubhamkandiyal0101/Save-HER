@@ -15,9 +15,9 @@ Might be its true "we are live in 21st Century"
 But its not Possible to believe that we are in 21st Century because world is look like Human just wear modern clothes and used modern technology but "HE"/SHE/Lesbian/Gay/Transgender **lives in Stone Age** because still today, **men raped women**.
 
 ## What we need to do
-We need to create free Open Source Software & Apps for every girl to Save Herself in any situation. We are may be developer, programmer, designer, hacker, or may be you have knowledge of hardware .
+We need to create free Open Source Software & Apps for every girl to Save Herself in any situation. You are may be developer, programmer, designer, hacker, or may be you have knowledge of hardware or might be You have some maney to invest in ideas of **Save HER**.
 
-We are here to do something here.	
+We are here to do something innovative.	
 
 > Then why not we can create such things to Save HER.
 
