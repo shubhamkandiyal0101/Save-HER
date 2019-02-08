@@ -23,7 +23,7 @@ We are here to do something innovative.
 
 > Then why not we can create such things to Save HER.
 
-> I hope we can create something better for Future for Someone's Sister, Someone's Daughter, Someone's Mother, Someone's Wife.
+> I hope we can create something better Future of Someone's Sister, Someone's Daughter, Someone's Mother, Someone's Wife.
 
 I doesn't have such idea to create something for HER. But Many of People have great ideas to Change this world again
 
