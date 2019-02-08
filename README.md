@@ -3,7 +3,9 @@
 **A Software to Save HER**
 
 ## Project Description
-I create this repository for Web Developer who wants make a **Safe Environment for HER**.
+I create this repository for EveryOne who wants make a **Safe Environment for HER**.
+
+> You might be do Contribute in past for something **But** __Now it's time to Contribute something for HER__ (Because Something is Always is Better than Nothing) 
 
 ## Why I need this Repo _OR_ Why I create this Repo
 We know that we are born from Women Womb or May be Artificial Wombs Or Test Tubes (We are developer, we think as much as possible ways). 
